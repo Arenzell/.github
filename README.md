@@ -1,4 +1,4 @@
 # Welcome to Arendelle Organization
 
 
-![u7xs1ksi2mz51](https://github.com/Arenzell/.github/assets/129685965/a0d7405f-4bd5-4dae-ab21-8595a3fc782b)
+![The_Great_Thaw](https://github.com/Arenzell/.github/assets/129685965/20e20269-bc5a-4de4-ab47-32b029b6df46)
